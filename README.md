@@ -1,0 +1,1 @@
+# Manual-Spremoo-e-Definitivo-do-Poder
